@@ -1,2 +1,0 @@
-# WrittenOfHarpoonQueen
-Gasharpoon x DemonQueen
