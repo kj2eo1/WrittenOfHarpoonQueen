@@ -3,7 +3,7 @@
 # DemonQueen
 + she's calm person and cruel
 + she's feminine (bcs why not)
-+ she's friends with JaneDoe, Elliot, Chance, Guest1337, 008o8, Dusekkar, Taph, Nostalgia
++ she's friends with JaneDoe, Elliot, Chance, Guest1337, 008o8, Dusekkar, Taph, Nostalgia, azure
 + The ex: Noli, green skeleton (she hate to see JaneDoe bring Jane's "boyfriend" green skeleton)
 + she like reading, video game, tea party (most hangout with Elliot and JaneDoe, except for gasharpoon)
 + she getting bored when gasharpoon is going somewhere (she know what exactly to make her come home faster)
