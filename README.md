@@ -14,7 +14,7 @@
 # gasharpoon
 + she's old hag and manipulating
 + she's butch (bcs my friend said so)
-+ she's friends with Mafioso / DonSonnellino, Dusekkar, slasher, 007n7 and C00lkidd, JaneDoe
++ she's friends with Mafioso / DonSonnellino, Dusekkar, slasher, 007n7 and C00lkidd, JaneDoe, Itrapped
 + The ex: TwoTime, Annihilated / Blixer, green skeleton (she dislike him and hate to hear and see how he treat DemonQueen)
 + She like reading book of mody dick, video games except tea party with DemonQueen (she getting bored asf)
 + She private her message with DemonQueen's text or send smth freaky (she doesn't wanna be embarrassed and laughed)
